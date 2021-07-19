@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hanza rahman
+- 👋 Hi, I’m @Hamza rahman
 - 👀 I’m interested in coding and programming
 - 💞️ I’m looking to collaborate on android,web and game
 - 📫 How to reach me ... i will add it soon
